@@ -1,6 +1,6 @@
 # Hello, Everyone!!! 👋
 
-Kembali Lagi Bersama Saya **Dzikri Izzatul Haq**.  
+Welcome Back Again With Me **Dzikri Izzatul Haq**.  
 
 <p align="left">
 <a href="https://github.com/Dzikri7">
